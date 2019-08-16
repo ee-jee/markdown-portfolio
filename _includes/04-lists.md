@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+Goals for this day:
+1. Visit a doctor
+2. Buy equipment
